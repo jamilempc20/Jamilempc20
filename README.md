@@ -2,7 +2,7 @@
 
 Meu nome é Jamile Moreira,  graduanda em direito pela Universidade Federal da Bahia. Sou do tipo equilibrada que se preocupa com as pessoas, 
 valoriza o bom convívio e a harmonia nos relacionamentos, além de se dedicar aos assuntos relacionados ao trabalho e desenvolvimento profissional. 
-Gosto de empreender e inovar, uma mente cheia de ideias. Sou de esposa Valter e filha de um Deus Vivo.
+Gosto de empreender e inovar, uma mente cheia de ideias. Sou esposa de Valter e filha de um Deus Vivo.
 
 "Muitas são, Senhor, Deus meu, as maravilhas que tens operado."
 
