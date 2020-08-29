@@ -2,9 +2,9 @@
 
 Meu nome é Jamile Moreira,  graduanda em direito pela Universidade Federal da Bahia. Sou do tipo equilibrada que se preocupa com as pessoas, 
 valoriza o bom convívio e a harmonia nos relacionamentos, além de se dedicar aos assuntos relacionados ao trabalho e desenvolvimento profissional. 
-Gosto de empreender e inovar, uma mente cheia de ideias. Considero-me organizada, proativa e comprometida na realização dos meus trabalhos. 
-A minha motivação é ver que o mercado atual está transformando a área jurídica, exigindo menos burocracia e um profissional com perfil empreendedor, 
-com visão estratégica e adaptado as novas tecnologias. 
+Gosto de empreender e inovar, uma mente cheia de ideias. Sou de esposa Valter e filha de um Deus Vivo.
+
+"Muitas são, Senhor, Deus meu, as maravilhas que tens operado."
 
 Linkedin: https://www.linkedin.com/in/jamile-moreira-34a467198/ 
 
