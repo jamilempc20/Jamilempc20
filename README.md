@@ -6,7 +6,7 @@ Gosto de empreender e inovar, uma mente cheia de ideias. Sou esposa de Valter e 
 
 "Muitas são, Senhor, Deus meu, as maravilhas que tens operado."
 
-Linkedin: https://www.linkedin.com/in/jamile-moreira-34a467198/ 
+Linkedin: https://www.linkedin.com/in/jamilemoreira/
 
 
 <!--
